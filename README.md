@@ -53,4 +53,4 @@ I am currently involved in Formula Student Driverless activities through MoRe Mo
 
 ## Connect With Me
 
-- LinkedIn: INSERT_YOUR_LINKEDIN_HERE
+- LinkedIn: Filippo Degli Esposti
